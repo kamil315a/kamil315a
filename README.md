@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @kamil315a
+- 👋 Hi, I’m @kamil315a -> Kamil Ciągło 
 
 - 👀 I’m interested in old but superb heroes 3 game, healthy life, making life easier :)
 
